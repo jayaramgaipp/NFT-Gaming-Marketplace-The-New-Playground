@@ -1,0 +1,2 @@
+# NFT-Gaming-Marketplace-The-New-Playground
+NFTs are generating news for their ability to open up new possibilities in a variety of conventional applications. The way NFTs are revolutionizing the gaming sector is attracting the most attention. The gaming industry is one of the world’s largest commercial sectors. What is the size of it? You have to think in terms of billions; the global gaming market is expected to reach $545.98 billion by 2028.
